@@ -1,7 +1,5 @@
 https://soundcloud.com/cybervalkyrie/sets/crash-log
-CRASH.log TRACKLIST:
-
-**Track List**
+**CRASH.log TRACKLIST:**
 
 01 - /RECURSION/
 
