@@ -40,4 +40,6 @@ https://soundcloud.com/cybervalkyrie/sets/crash-log
 
 20 - corrupted kernel
 
-21 - sudo nuke
+21-28 are missing
+
+29 - sudo nuke
