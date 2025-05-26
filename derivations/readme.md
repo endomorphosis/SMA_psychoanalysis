@@ -1,0 +1,1 @@
+This folder contains the the cause and effect relationships between stimulus and reactions, that instinctually drive decisions.

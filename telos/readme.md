@@ -1,0 +1,1 @@
+we're working with what appears to be cyberpunk/AI-themed lyrics, "raison d'être" or "prime directive" might be particularly fitting to explain the contents of this folder.

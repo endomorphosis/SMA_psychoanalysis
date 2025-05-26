@@ -1,0 +1,1 @@
+This folder contains the topics that makes her anxious or have ptsd, and what happens when she gets into that state.
