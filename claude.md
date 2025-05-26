@@ -1,0 +1,5 @@
+I am trying to figure out why or how this musician can come up with such amazing music, i know that she uses suno for the music but i dont know if she uses chatgpt for the composition, because I have never seen suno do this good, or if she wrote the lyrics herself. 
+
+What I am looking for is the sort of emotional recipe that this woman had when she was either writing these lyrics or writing the prompts to make the lyrics. I have shared my own notes inside of the human_annotations, and I have created subfolders where Ia m trying to contain the emotional themes of anxieties, passions, telo, and derivations to sort of connect ideas together.
+
+can you help me document with some some sort of analysis of her emotional canvas, that I can then later use to come up with my own lyrics of equal quality and the exact same emotional tenor.
