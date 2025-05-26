@@ -1,1 +1,1 @@
-
+I think this is about her mercenary boyfriend who was killed.

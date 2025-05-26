@@ -1,1 +1,1 @@
-
+This looks like fully AI generated lyrics that have nothing in particular in them that are personal to her, due to the large amount of rhyming lyrics.

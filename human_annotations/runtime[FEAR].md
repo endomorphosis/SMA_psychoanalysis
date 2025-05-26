@@ -1,1 +1,1 @@
-
+this might have to do with people about the fear that she lives in being in a family that is in the defense industry, or it might have to do with her exbf who is dead.

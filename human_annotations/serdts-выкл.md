@@ -1,1 +1,1 @@
-
+I dont speak russian or whatever, so I assume that this song was specially crafted by her, and I seem to remember that her ex boyfriend might have been working as a mercenary in the ukraine war.

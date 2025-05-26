@@ -1,1 +1,1 @@
-
+i think she came up with this song based on her work in AI / ML doing alignment work.

@@ -1,1 +1,1 @@
-
+i assume that she chose this song structure, but I have no idea what its about because I dont speak russian.

@@ -1,1 +1,1 @@
-
+This song has high production value, and I think that it holds special significance for her. I think i remember she has some interest in the god Odin.

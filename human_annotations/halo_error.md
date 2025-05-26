@@ -1,1 +1,1 @@
-
+I think this is another breakup song about her ex boyfriend.

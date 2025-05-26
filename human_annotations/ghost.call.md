@@ -1,1 +1,1 @@
-
+I suspect that this one was written with a personalized prompt, because of the unusual title, and the fact that her boyfriend recently died, and I believe that she is either having a conversation with him in her subconcious or recalling conversations she previously had with the ex boyfriend.

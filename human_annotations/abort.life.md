@@ -1,1 +1,1 @@
-
+I think that she might have possibly broken up with one of her boyfriends and had an abortion which made her feel regret and oneitis.

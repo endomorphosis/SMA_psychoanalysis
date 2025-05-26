@@ -1,1 +1,1 @@
-
+i think she came up with this song based on her work in AI / ML doing alignment work and some of her ego, given that her family comes from the defense industry.

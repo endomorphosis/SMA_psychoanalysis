@@ -1,1 +1,1 @@
-
+i think this one is written with parts of her personal experience. I wonder if the age difference referred to her.
